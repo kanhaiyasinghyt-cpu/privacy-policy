@@ -1,1 +1,1 @@
-# privacy-policy
+Privacy Policy. This app is used only by its owner to publish posts to the owner's own Facebook Page. It does not collect, store, sell or share personal data of any other person. To request deletion of any data, please contact the owner through the Facebook Page.
